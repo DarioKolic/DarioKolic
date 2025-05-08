@@ -1,3 +1,3 @@
-![bg](https://github.com/user-attachments/assets/57648285-5a9d-48fe-a2e7-8b05392b72d1)
+![image](https://github.com/user-attachments/assets/aae27c5b-636d-4097-899b-8e79636476d9)
 
 ### Passionate React Developer
